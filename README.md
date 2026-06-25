@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mich-stroud (formerly li)
+- 👋 Hi, I’m michelle stroud (formerly li)
 - 👀 I’m interested in value based care (healthcare) analytics
 - 📫 How to reach me: https://www.linkedin.com/in/michelle-m-li/
 - 😄 Pronouns: she/her
